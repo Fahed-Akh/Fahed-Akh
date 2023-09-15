@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi i'm Fahed 👋
 
 <!--
 **Fahed-Akh/Fahed-Akh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
